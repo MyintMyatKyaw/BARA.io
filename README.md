@@ -1,0 +1,2 @@
+# BARA
+my bara manga
